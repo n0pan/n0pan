@@ -1,7 +1,1 @@
-Beware of dog
-
-
-
-
-
-🐕‍🦺
+Beware of dog 🐕‍🦺
